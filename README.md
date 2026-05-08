@@ -249,6 +249,6 @@ If you liked this project:
 
 # 🚀 “Transforming Traditional Attendance into Intelligent Automation”
 
-### Made with ❤️ by Sumit Parmar
+### Made with ❤️ by Shankar suman singh parmar and team 
 
 </div>
